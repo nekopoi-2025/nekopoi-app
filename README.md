@@ -69,6 +69,7 @@ Stream anime with NekoPoi MOD APK versions and enjoy all the premium features fo
 
 </ul>
 
+[nekopoi github](https://github.com/nekopoi-2025/nekopoi-app)
 
 ## User Reviews
 
